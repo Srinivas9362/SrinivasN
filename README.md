@@ -1,2 +1,0 @@
-# SrinivasN
-Srinivas N Protfolio
